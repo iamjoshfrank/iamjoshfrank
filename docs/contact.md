@@ -1,0 +1,2 @@
+- [@iamjoshfrank on Twitter](https://twitter.com/iamjoshfrank)
+- [Connect with me on LinkedIn](https://linkedin.com/in/iamjoshfrank)
